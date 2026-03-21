@@ -1,0 +1,2 @@
+# FYBCA-SEM-1-ALL-SUBJECT-HANDWRITTEN-NOTES.
+My handwritten notes.
